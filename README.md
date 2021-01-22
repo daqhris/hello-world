@@ -7,3 +7,7 @@
 Followed instructions can be found here https://guides.github.com/activities/hello-world/
 
 This winter is wrecking my bones and brains. Therefore, I am cheerfully answering a hotline bling call to pick up on the fingers-and-nerves break dance!
+
+
+*Beijing,   
+2016/02/22*
